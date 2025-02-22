@@ -1,1 +1,0 @@
-# Google-My-Business-Optimization-for-Dental-Clinic
